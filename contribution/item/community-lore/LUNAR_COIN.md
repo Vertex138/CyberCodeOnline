@@ -1,0 +1,9 @@
+It's been many years since tangible coins like these have been utilized for circulation. Once BTC caught on, most people exchanged in their savings without a second thought. Physical currency was all but abandoned, and those who refused to adapt were cast into obscurity.
+
+It's hard to describe the feeling that one feels when they hold a token like this. For some, they feel disgust. Disgusted by the concept of archaic coins like these. It's nothing like the easy, safe, encrypted, blockchain-secured token they use daily. A hunk of metal like this serves no purpose other than to be the bane of the common man's existence. They're the perfect size to wedge themselves into any place you wouldn't desire it. Deep in a pocket, lost in a couch cushion, or worst of all, taking up precious space in your inventory.
+
+But for others, there's something else... some call it nostalgia. It's easy to begin reminiscing about the giddy feeling of finding a penny heads-up on the sidewalk. Or visiting a musty arcade with a plastic cup full of corroded tokens. It's hard to resist idly flipping a coin like this, much like a cocky, mustache-twirling merchant.
+
+Perhaps for some, it's the feeling of being a guest in Yen's Corner Store. The bustling of a well-fed crowd. The smell of fresh dumplings steaming on a plate. Yen's smile as she and her family serve their culinary art to ravenous patrons. It's a feeling of warmth, of something better than the daily power struggle between gangs, the corporations, and anyone who crosses the wrong path.
+
+You blink. You've been standing in the street, clutching this coin for an indeterminate amount of time. It's snowing again. It's cold. And worst of all, it's probably not safe here. You slip the coin back into your pouch and trudge onwards. For some reason, you can't stop thinking about sushi...
